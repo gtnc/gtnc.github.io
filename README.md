@@ -1,1 +1,0 @@
-# gtnc.github.io
